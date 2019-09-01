@@ -1,1 +1,1 @@
-![image of my portfolio page](https://flic.kr/p/2a1CbBd) 
+![image](https://live.staticflickr.com/1918/30709184417_9ce3445959_b.jpg) 
